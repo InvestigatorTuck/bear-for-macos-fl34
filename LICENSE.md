@@ -1,4 +1,4 @@
-
+Bear for macOS vip Plugin: dark mode & offline access offers the most advanced Bear for macOS plugin, with dark mode and offline access. Ideal for professionals.
 
 
 
